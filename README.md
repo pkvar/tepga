@@ -1,4 +1,0 @@
-# tepgacast
-# tepga
-# tepga
-# tepga
